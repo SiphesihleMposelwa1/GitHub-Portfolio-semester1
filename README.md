@@ -110,7 +110,7 @@ As a result, I became more confident in handling interviews and improved my unde
 
 ## Evidence
 
-[Watch Mock Interview Video](PASTE YOUR YOUTUBE LINK HERE)
+
 
 ---
 
